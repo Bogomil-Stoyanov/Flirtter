@@ -13,3 +13,5 @@ https://flirtter.bbsapps.eu
 Lean back, relax and just watch. Flirtter does the rest for you!No swiping or filling out questionnaires.Not just another dating app. It’s Flirtter.<br/><br/> 
 Micro facial expressions, emotions, and eyes. This is how Flirtter discovers what you like. The first impression is formed in 7 seconds, that is exactly how long you see your potential matches.<br/><br/>
 Dating is for everyone. Easily chat with your matches and bring the game to the next level with Flirtter!
+
+<center>[Download now!](https://flirtter.bbsapps.eu/download/)</center>
